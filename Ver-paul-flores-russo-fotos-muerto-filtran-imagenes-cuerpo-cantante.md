@@ -1,10 +1,12 @@
 Paul Flores 'Russo' fotos muerto: se filtran imágenes del cuerpo del cantante
 Descubre cuales cuáles son las fotos filtradas de Paul Flores 'Russo' muerto. Conoce todos los detalles sobe su muerte y las imágenes que causan revuelo.
 
-Imagen de Paul Flores 'Russo' fotos muerto: se filtran imágenes del cuerpo del cantante
-El mundo de la música peruana está de luto tras el fallecimiento de Paul Flores, mejor conocido como 'Russo'. El 16 de marzo de 2025, sicarios mataron al artista, de 40 años, en San Juan de Lurigancho. Recientemente, se han comenzado a filtrar fotos de Paul Flores muerto en redes sociales, lo que ha generado indignación y dolor entre sus seguidores y familiares.
+📺📱👉◄◄🔴 https://tinyurl.com/56vdwuy6
 
-El artista, conocido por ser vocalista de la reconocida orquesta peruana Armonía 10, murió al instante tras recibir varios impactos de bala, cuando sicarios interceptaron sorpresivamente el autobús en el que se trasladaba la agrupación.
+📺📱👉◄◄🔴 https://tinyurl.com/56vdwuy6
+
+📺📱👉◄◄🔴 https://tinyurl.com/56vdwuy6
+
 
 ¿Cómo murió Paul Flores?
 Según medios locales, sicarios asesinaron al artista Paul Flores, integrante de la reconocida orquesta de cumbia Armonía 10 de Piura, durante la madrugada del domingo 16 de marzo en la Vía de Evitamiento, después de que él ofreciera un concierto en San Juan de Lurigancho.
